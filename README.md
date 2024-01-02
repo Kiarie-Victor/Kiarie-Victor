@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **victorkiariem@gmail.com**
 
-- ⚡ Fun fact **I think im funny. Yeah my life is a joke .)**
+- ⚡ Fun fact **I think im funny. Yeah my life is a joke :)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
